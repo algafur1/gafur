@@ -1,0 +1,2 @@
+# gafur
+sayang kamu
